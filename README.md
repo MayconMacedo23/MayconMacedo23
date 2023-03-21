@@ -8,12 +8,19 @@
 
 
 #### Hello There 🤘 
+---------------------
+
+
+- Maycon de Oliveira Macedo
+
+- 21years
 
 
 
-Maycon de Oliveira Macedo
+-----------------------
+## Academic education
 
-21years
+- University Education - Unimar: Analysis and Systems Development since 01/2023 - 12/2026
 
 
 
