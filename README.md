@@ -11,11 +11,13 @@
 
 #### Hello There 🤘 
 ---------------------
+## About me
 
 
 - Maycon de Oliveira Macedo
+- 21 Years
+- Brazilian
 
-- 21years
 
 
 
