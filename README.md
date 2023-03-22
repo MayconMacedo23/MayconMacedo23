@@ -22,7 +22,8 @@
 -----------------------
 ## Academic education
 
-- University Education - Unimar: Analysis and Systems Development-_Since 01/2023 - 12/2026_
+- University Education - Unimar: _Analysis and Systems Development_-_Since 01/2023 - 12/2026_
+- University Education - Univem: _Information Systems 01/2020-**Locked situation**_
 - University Education - Unimar : _Nursing 01/2019-**Locked situation**_
  ----
 
