@@ -23,7 +23,11 @@
 ## Academic education
 
 - University Education - Unimar: Analysis and Systems Development since 01/2023 - 12/2026
+ ----
 
+## Experience
+
+- Electronic Technical Assistant- **Vega Sat Rastreamento e Gestão**- _Since April 2022 to November 2022_
 
 
 
