@@ -23,6 +23,7 @@
 ## Academic education
 
 - University Education - Unimar: Analysis and Systems Development since 01/2023 - 12/2026
+- University Education - Unimar : Nursing 01/2019-**Locked situation**
  ----
 
 ## Experience
