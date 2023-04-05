@@ -15,9 +15,9 @@
 ## About me
 
 
-- Maycon de Oliveira Macedo
-- 21 Years
-- Brazilian
+- Maycon de Oliveira Macedo.
+- 21 Years.
+- Brazilian.
 
 
 
