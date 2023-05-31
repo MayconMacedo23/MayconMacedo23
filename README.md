@@ -34,7 +34,7 @@
 ## Experience
 
 - Electronic Technical Assistant- **Vega Sat Rastreamento e Gestão**- _Since April 2022 to November 2022_
-- IT Apprentice- **Spiltag**- _Since April 2023 - Current
+- IT Apprentice- **Spiltag**- Since April 2023 - Current
 
 
 
