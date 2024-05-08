@@ -1,5 +1,4 @@
-# 💫 About Me:
-(●'◡'●) 23Years<br><br>༼ つ ◕_◕ ༽つ Tech Aspirant<br><br>(✿◡‿◡) I currently work in IT infrastructure support at Spiltag<br><br>( ﾉ ﾟｰﾟ)ﾉSometimes Valorant player<br><br>                         "No Gods Or Kings, Only Man"
+                        "No Gods Or Kings, Only Man"
 
 
 ## 🌐 Socials:
